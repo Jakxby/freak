@@ -1,0 +1,2 @@
+# freak
+Entah lah
